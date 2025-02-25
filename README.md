@@ -1,4 +1,4 @@
-# 🚀 Ángeles Valdospin | Software Engineer  
+# 🚀 Angeles Valdospin | Software Engineer  
 ## 🎯 Especialista en IA aplicada a salud mental y biotecnología  
 
 
